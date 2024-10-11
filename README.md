@@ -6,6 +6,6 @@
 - 🤔 I’m looking for help with Java and others.
 - 💬 Ask me about my favorite programming language .
 - 📫 How to reach me: alooooTrejo78.
-- 😄 Pronouns: She.
+- 😄 Pronouns: She and Her.
 - ⚡ Fun fact: I love program.
 
